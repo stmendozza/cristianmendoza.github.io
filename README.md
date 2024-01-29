@@ -1,1 +1,0 @@
-# cristianmendoza.github.io
